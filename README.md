@@ -1,0 +1,2 @@
+# zaliczenie
+Pliki zaliczeniowe + ćwiczeniowe 
